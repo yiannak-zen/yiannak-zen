@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yiannak-zen.
+- 👋 Hi, I’m @zendesk-yianna.
 - 👀 I’m interested in cyberpunk 2077, magic the gathering and my dog romeo.
 - 🌱 I’m currently learning everything zendesk.
 - 💞️ I’m looking to collaborate on stuff.
